@@ -6,7 +6,7 @@
 name: DeBarros
 
 # Short bio or description (displayed in the header)
-description: WTF, why is this not updating?
+description: Rapper from Colorado
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
 avatar: https://raw.githubusercontent.com/barryclark/jekyll-now/master/images/jekyll-logo.png
@@ -18,12 +18,12 @@ avatar: https://raw.githubusercontent.com/barryclark/jekyll-now/master/images/je
 # Includes an icon in the footer for each username you enter
 footer-links:
   dribbble:
-  email:debarrosdarapper@gmail.com
-  facebook:https://www.facebook.com/profile.php?id=100010135603461
+  email: debarrosdarapper@gmail.com
+  facebook: https://www.facebook.com/profile.php?id=100010135603461
   flickr:
-  github:https://github.com/DeBarrosDaRapper/
-  instagram:https://www.instagram.com/adriandebarros/
-  linkedin:https://www.linkedin.com/in/adriandebarros/
+  github: https://github.com/DeBarrosDaRapper/
+  instagram: https://www.instagram.com/adriandebarros/
+  linkedin: https://www.linkedin.com/in/adriandebarros/
   pinterest:
   rss: # just type anything here for a working RSS icon
   twitter: adriandebarros
