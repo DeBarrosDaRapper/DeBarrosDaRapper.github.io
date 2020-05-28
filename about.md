@@ -7,7 +7,7 @@ published: true
 
 A blog from the musings of DeBarros
 
-### Venture at your own risk!
+### Proceed at your own risk!
 
 Thank you for taking the journey with me!
 
