@@ -11,6 +11,6 @@ A blog from the musings of DeBarros
 
 Thank you for taking the journey with me!
 
-### Contact me
+### Text me
 
-[debarrosdarapper@gmail.com](debarrosdarapper@gmail.com)
+213.538.8108
