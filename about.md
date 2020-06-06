@@ -17,7 +17,7 @@ Thank you for taking the journey with me!
 
 ### End Credits
 
-📚My book of rhymes:  http://amzn.to/1nW0Eyh
+📚My book of rhymes:  [http://amzn.to/1nW0Eyh](http://amzn.to/1nW0Eyh)
 
 Join my BatPhone Service ⚙️: [http://fbuy.me/lsF1N](http://fbuy.me/lsF1N)
 
