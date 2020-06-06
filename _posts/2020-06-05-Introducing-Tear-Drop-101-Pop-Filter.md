@@ -3,11 +3,9 @@ published: true
 ---
 # Are you a DIY recording artist in need of a better pop filter?
 
-I so happen to be revisiting the book 
-## "Steal Like an Artist"
-and thought I'd share how I didn't reinvent the wheel I simply came up with a different version of the "wheel"
+We'll start off with the lesson and then go into the DIY Pop filter - The Tear Drop 101
 
-I'll give you the 10 Big Ideas straight away
+## The lesson - taken from the book "Steal Like an Artist"
 
 1.Steal like an artist.
 
