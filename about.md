@@ -35,3 +35,5 @@ Share The Blog! 📡 [https://debarrosdarapper.github.io/](https://debarrosdarap
 
 Email me! 📧 [debarrosdarapper@gmail.com](debarrosdarapper@gmail.com)
 
+Let's get social and connect below!
+
