@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-# Got a stanky, old crusty nylon pop filter? 
+Got a stanky, old crusty nylon pop filter? 
 Notice voice alterations when it gets soaked after you've spit or sing fire bars?
 
 I got something straight from the aquarium 
