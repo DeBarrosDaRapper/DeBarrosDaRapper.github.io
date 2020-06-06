@@ -39,7 +39,9 @@ because I sought to get cleaner, non-splosive, less essing takes as I worked on 
 
 I digress - Frustration led me to seek answers, frustration led me to Youtube, and this guys channel" Podcastage", where I saw, what looked like, a damn brillo black pad as his pop filter - I was like yo, is that a black brillo pad?  As he spoke, and no matter how hard he blew splosives, it wasn't coming through the mic.  I was like ok, that pop filter is dispersing airflow without altering sound.
 
-![Podcastage and his black brillo pad pop filter]({{site.baseurl}}/_posts/BlackBrilloPadPopFilter.png)
+Podcastage and his black brillo pad pop filter
+
+![BlackBrilloPadPopFilter.png]({{site.baseurl}}/_posts/BlackBrilloPadPopFilter.png)
 
 In the middle of his video - yeah, I wasn't staying til the end, I HAD to know what the official name of that black brillo pad was - and of course, like all good Youtubers, "he had a link in the description below."  I found out it's called the hakan P110 Pop Killer, sold at sweetwater.com for 99 bucks, and described as "Hydrophobic foam construction won't absorb water" - yeah yeah fancy wording for - that pop filter is fuckin' scared of water and calls it mean names behind its back.
 
