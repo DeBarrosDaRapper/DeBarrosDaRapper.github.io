@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-## To all of my DIY Recording Artis out there, this is for you!
+# To all of my DIY Recording Artis out there, this is for you!
 
 I so happen to be revisiting the book 
 ## "Steal Like an Artist"
