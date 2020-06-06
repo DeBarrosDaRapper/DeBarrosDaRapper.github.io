@@ -18,6 +18,7 @@ Thank you for taking the journey with me!
 ### End Credits
 
 📚My book of rhymes:  http://amzn.to/1nW0Eyh
+<br>
 Join my BatPhone Service ⚙️: http://fbuy.me/lsF1N
 🎶🎵🎙My Music:  https://soundcloud.com/adrian-debarros
 
