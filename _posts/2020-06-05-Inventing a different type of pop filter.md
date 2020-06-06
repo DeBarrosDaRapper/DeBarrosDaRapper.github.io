@@ -1,10 +1,7 @@
 ---
 published: true
 ---
-Got a stanky, old crusty nylon pop filter?   
-
-*read time - don't fawkin' know, this site ain't fancy like Medium*
-
+Got a stanky, old crusty nylon pop filter? 
 Notice voice alterations when it gets soaked after you've spit or sing fire bars?
 
 I got something straight from the aquarium 
@@ -40,7 +37,8 @@ DIY Pop filter - The Tear Drop 101
 It was a warm Spring Day - came back from a walk, went down to the basement recording studio and
 because I sought to get cleaner, non-splosive, less essing takes as I worked on new music.  I'd resort to placing the mic off axis to my mouth, step back a bit further like James Harden, but the intimacy felt fleeting, like the day after a break-up.  So I was like, "dammit, why can't I get up on this mic, make love to it and NOT feel guilty about it?" Frustration simmered inside like the time that blonde in my 2001 White Chevy Corsica, told me,"Your first time should be special, and I don't want to take it away from you"  I was like,"I'm offering my V-Card and this woman doesn't want to swipe it.  Oh but before she knew I had a V-card, she was down like Mario standing on a green pipe...
 
-I digress - Frustration led me to seek answers, frustration led me to Youtube, and this guys channel" Podcastage", where I saw, what looked like, a damn brillo black pad as his pop filter - I was like yo, is that a black brillo pad?  As he spoke, and no matter how hard he blew splosives, it wasn't coming through the mic.  I was like ok, that pop filter is dispersing airflow without altering sound. 
+I digress - Frustration led me to seek answers, frustration led me to Youtube, and this guys channel" Podcastage", where I saw, what looked like, a damn brillo black pad as his pop filter - I was like yo, is that a black brillo pad?  As he spoke, and no matter how hard he blew splosives, it wasn't coming through the mic.  I was like ok, that pop filter is dispersing airflow without altering sound.
+
 ![Podcastage and his black brillo pad pop filter]({{site.baseurl}}/_posts/BlackBrilloPadPopFilter.png)
 
 In the middle of his video - yeah, I wasn't staying til the end, I HAD to know what the official name of that black brillo pad was - and of course, like all good Youtubers, "he had a link in the description below."  I found out it's called the hakan P110 Pop Killer, sold at sweetwater.com for 99 bucks, and described as "Hydrophobic foam construction won't absorb water" - yeah yeah fancy wording for - that pop filter is fuckin' scared of water and calls it mean names behind its back.
