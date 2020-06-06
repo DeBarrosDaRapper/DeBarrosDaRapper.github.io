@@ -41,7 +41,7 @@ I digress - Frustration led me to seek answers, frustration led me to Youtube, a
 
 Podcastage and his black brillo pad pop filter
 
-![BlackBrilloPadPopFilter.png]({{debarrosdarapper.github.io}}/_posts/BlackBrilloPadPopFilter.png)
+[Black-Brillo-Pad-Pop-Filter.png](https://postimg.cc/JsZYPc75)
 
 In the middle of his video - yeah, I wasn't staying til the end, I HAD to know what the official name of that black brillo pad was - and of course, like all good Youtubers, "he had a link in the description below."  I found out it's called the hakan P110 Pop Killer, sold at sweetwater.com for 99 bucks, and described as "Hydrophobic foam construction won't absorb water" - yeah yeah fancy wording for - that pop filter is fuckin' scared of water and calls it mean names behind its back.
 
