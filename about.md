@@ -21,7 +21,7 @@ Thank you for taking the journey with me!
 
 Join my BatPhone Service ⚙️: [http://fbuy.me/lsF1N](http://fbuy.me/lsF1N)
 
-🎶🎵🎙My Music:  https://soundcloud.com/adrian-debarros
+🎶🎵🎙My Music:  [https://soundcloud.com/adrian-debarros](https://soundcloud.com/adrian-debarros)
 
 Support the blog! ❤️
 
