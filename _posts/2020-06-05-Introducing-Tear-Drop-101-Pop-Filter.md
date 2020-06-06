@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-# To all of my DIY Recording Artis out there, this is for you!
+# Are you a DIY recording artist in need of a better pop filter?
 
 I so happen to be revisiting the book 
 ## "Steal Like an Artist"
