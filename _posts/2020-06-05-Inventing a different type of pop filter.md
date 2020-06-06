@@ -41,7 +41,7 @@ I digress - Frustration led me to seek answers, frustration led me to Youtube, a
 
 Podcastage and his black brillo pad pop filter
 
-[![Black-Brillo-Pad-Pop-Filter.png](https://i.postimg.cc/L8bd4Nrw/Black-Brillo-Pad-Pop-Filter.png)](https://postimg.cc/JsZYPc75)
+[![Black-Brillo-Pad-Pop-Filter.png](https://i.postimg.cc/GtV3Xpd7/Black-Brillo-Pad-Pop-Filter.png)](https://postimg.cc/jn6r5tWP)
 
 In the middle of his video - yeah, I wasn't staying til the end, I HAD to know what the official name of that black brillo pad was - and of course, like all good Youtubers, "he had a link in the description below."  I found out it's called the hakan P110 Pop Killer, sold at sweetwater.com for 99 bucks, and described as "Hydrophobic foam construction won't absorb water" - yeah yeah fancy wording for - that pop filter is fuckin' scared of water and calls it mean names behind its back.
 
@@ -51,13 +51,13 @@ I dug further, and with me being kinda good with word meanings, and general obje
 
 Here's what the product looks like on Sweetwater's site:
 
-![BlackBrilloPadOnSweetwater.PNG]({{site.baseurl}}/_posts/BlackBrilloPadOnSweetwater.PNG)
+[![Black-Brillo-Pad-On-Sweetwater.png](https://i.postimg.cc/bNSws19K/Black-Brillo-Pad-On-Sweetwater.png)](https://postimg.cc/1fPQdnTH)
 
 My eyes were keen in scoping out the patterns of the foam, and brought me to the conclusion, I would need a porous reticulated open cell foam, in less density, and the density is measure in PPI ( pores per inch) from my ebay selections, I chose the [20PPI Reticulated Open Cell Foam](https://www.ebay.com/itm/Reticulated-Open-Cell-Foam-Sponge-Filter-Pad-Media-Aquarium-Fish-HMF-Sump-23/264470680987?ssPageName=STRK%3AMEBIDX%3AIT&var=564153266542&_trksid=p2057872.m2749.l2649)  this foam goes all the way up to 40PPI (allows for greater water filtering but impedes water flow) I used that water flow analysis and applied it to air flow.  With the lower density 20PPI foam, air flow would be dispersed widely through its web-like stucture, and with the 40PPI the air-flow would simply be reflected back at the mouth and would not make it through its tight structure.
 
 Have a look here
 
-![BlueFoam.png]({{site.baseurl}}/_posts/BlueFoam.png)
+[![BlueFoam.png](https://i.postimg.cc/PrDdtTtH/BlueFoam.png)](https://postimg.cc/7fqF9vGt)
 
 After short pondering, I ordered the 20PPI foam and waited about a week for its arrival and squeezed it like I do booty on a pirate voyage...  Grabbed an old pop filter with the familiar nylon hose centered in its plastic ring, unscrewed it, popped it out, at this point I knew I couldn't go back.  It was like putting it in several times and then pulling out just to say it never happened - come on Gumby!
 
@@ -70,11 +70,11 @@ It just hit me, blue foam, vocals so smooth it makes you want to cry (or shed a 
 *Lifting up the name like Link does at treasure chests in Zelda games*
 ## The Tear Drop 101 - pop filter by DeBarros
 
-![BlueFoamOnDeck.png]({{site.baseurl}}/_posts/BlueFoamOnDeck.png)
+[![Blue-Foam-On-Deck.png](https://i.postimg.cc/rpfkhp91/Blue-Foam-On-Deck.png)](https://postimg.cc/ns9grpgr)
 
-![BlueFoamInProgress.png]({{site.baseurl}}/_posts/BlueFoamInProgress.png)
+[![Blue-Foam-In-Progress.png](https://i.postimg.cc/KzVy2sw4/Blue-Foam-In-Progress.png)](https://postimg.cc/XGwPKxV0)
 
-![TheTearDrop101.png]({{site.baseurl}}/_posts/TheTearDrop101.png)
+[![The-Tear-Drop101.png](https://i.postimg.cc/tRZsx0XS/The-Tear-Drop101.png)](https://postimg.cc/PNHXgRvY)
 
 ## Summary and Conclusion
 
