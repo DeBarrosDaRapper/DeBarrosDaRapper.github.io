@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ## To all of my DIY Recording Artis out there, this is for you!
 
@@ -19,6 +19,3 @@ I'll give you the 10 Big Ideas straight away"
 8.Be nice. (The world is a small town.)
 9.Be boring. (It’s the only way to get work done.)
 10.Creativity is subtraction.
-
-
-
