@@ -23,6 +23,13 @@ I thought this blog would be that OUTLET where I shop my ideas, throw open passe
 
 [![toilet-paper.jpg](https://i.postimg.cc/3JjN8STn/toilet-paper.jpg)](https://postimg.cc/2V6rTx3Z)
 
+Perhaps in November, we’ll get to clean house and refill the toilet paper retainers with Charmin.  Heck, I’ll take Charmin-soft-Biden over shit-everywhere-Trump…   Ah stop right there, I’m not getting into politics.  I’m simply making observations of two white men, one in the white house, and the other riding his electric scooter up and down 1600 Pennsylvania Ave NW, BIDING time (pun intended) until November 2020.
+
+[![scooter.jpg](https://i.postimg.cc/50fFJhH5/scooter.jpg)](https://postimg.cc/kVh5FhvD)
+
+
+
+
 
 
 
