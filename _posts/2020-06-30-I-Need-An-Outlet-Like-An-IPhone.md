@@ -33,6 +33,18 @@ Alright, let’s pull back into our senses, sit back down at our nearby picnic t
 
 [![muskrat.jpg](https://i.postimg.cc/xT1h8qrh/muskrat.jpg)](https://postimg.cc/V52DHfkW)
 
+I've been a bit confused in this heat...
+
+[![womanunderwear.jpg](https://i.postimg.cc/NMVbp8fr/womanunderwear.jpg)](https://postimg.cc/ygmFNZRV)
+
+Whoops wrong underoos...
+
+[![underoos.jpg](https://i.postimg.cc/sDJ729d9/underoos.jpg)](https://postimg.cc/CzzzP8Kz)
+
+There that's a bit more acurate...
+
+
+
 
 
 
