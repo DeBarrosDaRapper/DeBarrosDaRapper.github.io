@@ -71,8 +71,6 @@ These last 2-3 months, I’ve been laying the groundwork for a more meaningful, 
 Check the practice I did with Mario, earlier in the day (demo of OTP, only 50 seconds):
 
 [https://youtu.be/5DHCnBEDbaQ](https://youtu.be/5DHCnBEDbaQ)
-
- I’ll keep using this blog as an outlet - we can’t have too many outlets… right?
  
  Oh - by the way, I really do need an outlet... I'm sitting in the park with no outlet, or am I?
 
