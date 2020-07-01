@@ -68,7 +68,7 @@ These last 2-3 months, I’ve been laying the groundwork for a more meaningful,i
 
 Check the practice I did with Mario, earlier in the day:
 
-https://youtu.be/5DHCnBEDbaQ
+[https://youtu.be/5DHCnBEDbaQ](https://youtu.be/5DHCnBEDbaQ)
 
  I’ll keep using this blog as an outlet - we can’t have too many outlets… right?
  
