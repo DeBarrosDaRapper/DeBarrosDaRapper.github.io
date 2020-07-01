@@ -68,7 +68,7 @@ Just think about it, we could play a mystery or puzzle game like [THE ROOM](http
 
 These last 2-3 months, I’ve been laying the groundwork for a more meaningful, inclusive, online presence and have been thinking deep on, “How I can build a playful platform.  I’m experimenting and playing like we used to do no the playground as kids, I’ll be sure to keep you updated right cheerrr in this dern blog, arrr k :)
 
-Check the practice I did with Mario, earlier in the day (demo of OTP):
+Check the practice I did with Mario, earlier in the day (demo of OTP, only 50 seconds):
 
 [https://youtu.be/5DHCnBEDbaQ](https://youtu.be/5DHCnBEDbaQ)
 
