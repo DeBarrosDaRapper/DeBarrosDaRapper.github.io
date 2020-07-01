@@ -1,7 +1,7 @@
 ---
 published: false
 ---
-## This will help you understand my lingo :)
+## I really need an outlet... :)
 
 Definitions:
 
