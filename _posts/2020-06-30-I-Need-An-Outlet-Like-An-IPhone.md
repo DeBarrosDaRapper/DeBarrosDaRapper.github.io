@@ -3,7 +3,6 @@ published: false
 ---
 ## This will help you understand my lingo :)
 
-
 Definitions:
 
 Girly face = a cute ass woman whom a guy flirts with, AND totally sees themselves on 51st dates with her!
