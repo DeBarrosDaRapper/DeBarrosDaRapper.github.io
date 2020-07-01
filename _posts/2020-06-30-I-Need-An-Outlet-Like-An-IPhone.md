@@ -58,11 +58,13 @@ See, prior to Covid-19 I’d swim almost daily to keep the weight down and stay 
 
 There’s a lot more format testing currently being done. If you like to play and chat about gaming and have an active social media account, (even if you think it’s small) and interested in being a tester (as a tester and co-host/guest, you’ll get to practice and showcase your improv, acting both on-camera and voice-over), either hit me up on one of the socials, email or my text number on the “about” page.
 
-Just think about it, we could play a mystery or puzzle game together like  while growing wrinkles in our brains, or we could shiver and shriek across the internet with one or one thousand of viewers watching us playing a horror game which rivals a good horror movie.
+Just think about it, we could play a mystery or puzzle game like [THE ROOM](https://www.fireproofgames.com/games/the-room) together like  while growing wrinkles in our brains, or we could shiver and shriek across the internet with one or one thousand of viewers watching us playing a horror game which rivals a good horror movie.
 
-These last 2-3 months, I’ve been laying the groundwork for a more meaningful online presence and have been thinking deep on, “How I can build a platform, and allow others to play.  I’m experimenting and playing like we used to do no the playground as kids, I’ll be sure to keep you updated right cheerrr in this dern blog, arrr k :)
+These last 2-3 months, I’ve been laying the groundwork for a more meaningful,inclusive online presence and have been thinking deep on, “How I can build a platform, and play with others in a different way.  I’m experimenting and playing like we used to do no the playground as kids, I’ll be sure to keep you updated right cheerrr in this dern blog, arrr k :)
 
  I’ll keep using this blog as an outlet - we can’t have too many outlets… right?
+ 
+ Oh - by the way, I really do need an outlet... I'm sitting in the park with no outlet, or am I?
 
 
-https://www.fireproofgames.com/games/the-room
+
