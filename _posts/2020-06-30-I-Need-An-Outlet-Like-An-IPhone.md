@@ -50,4 +50,19 @@ How’s my Summer been you ask?  Oh it’s been lovely, I walk around in white t
 
 ## AS THE WORLD TURNS
 
+Think of our lives Before Covid-19 hit… We were going to ask that girly face or that boy face out,  we were going to apply to in-person acting jobs or leave that soul-sucking career, we, collectively, were going to do an X-ton this year!  Personally, I had just completed acting-on-camera, voice-over classes and my Nerdy Girls collab single. I was transitioning myself out of the Information Technology field, Covid-19 happened to give me a HUGE push, and with that same force told me to,”Do it all online!”  I feel millions of artists at varying stages of their careers can relate.  I’m sure this next thing is not unique to me, but I happened to gain 11lbs (opposite of muscle) and am feeling the daily wear and tear on my joints.  
+
+See, prior to Covid-19 I’d swim almost daily to keep the weight down and stay agile and mobile with practically zero impact on my joints.  I haven’t swam in almost 4 months and this water animal is thirsty, and I’m not speaking of the drip variety.  Similar to my aspirations as a kid, I simply want to make a splash, I could say the ambition is directed towards both creative pursuits and the literal swimming pool, equally, however, during Summer of 2020, I simply want to swim where the water’s cold, both literally and figuratively.  And the cold water in my life currently is on-camera and voice-over.  With that said, I am currently working on a playful collaboration platform called “On The Playground” it’s a mix between podcasting and game streaming - see the logo below.  
+
+[![OTPLOGOX.png](https://i.postimg.cc/9XYY4jy7/OTPLOGOX.png)](https://postimg.cc/pyyF74GW)
+
+There’s a lot more format testing currently being done. If you like to play and chat about gaming and have an active social media account, (even if you think it’s small) and interested in being a tester (as a tester and co-host/guest, you’ll get to practice and showcase your improv, acting both on-camera and voice-over), either hit me up on one of the socials, email or my text number on the “about” page.
+
+Just think about it, we could play a mystery or puzzle game together like  while growing wrinkles in our brains, or we could shiver and shriek across the internet with one or one thousand of viewers watching us playing a horror game which rivals a good horror movie.
+
+These last 2-3 months, I’ve been laying the groundwork for a more meaningful online presence and have been thinking deep on, “How I can build a platform, and allow others to play.  I’m experimenting and playing like we used to do no the playground as kids, I’ll be sure to keep you updated right cheerrr in this dern blog, arrr k :)
+
+ I’ll keep using this blog as an outlet - we can’t have too many outlets… right?
+
+
 https://www.fireproofgames.com/games/the-room
