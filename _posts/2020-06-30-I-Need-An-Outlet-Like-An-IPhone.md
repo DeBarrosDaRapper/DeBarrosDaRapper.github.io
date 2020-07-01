@@ -44,13 +44,7 @@ Whoops wrong underoos...
 There that's a bit more acurate...
 
 
+[![Summer.jpg](https://i.postimg.cc/bJQdBpqH/Summer.jpg)](https://postimg.cc/sQgVBFQv)
 
-
-
-
-
-
-
-
-
+How’s my Summer been you ask?  Oh it’s been lovely, I walk around in white tees and those thin cloth shorts, you know the ones where it appears to be a pendulum swinging out front… Ladies, not sure you can relate.   Back to the white tees, as a kid growing up (you know cuz that’s the main thing you do as a kid (grow up)) I always wondered why rappers mostly wore white tees.  From my quick Google search I can see there was a gang in Chicago that wore simple white tees dating back to 2004-2005, but that’s not the topic here - Nothing on the topic of rappers, perhaps my Google search wasn’t deep enough.  My personal reasoning for wearing white tee shirts, I feel, if you don’t look/feel good in representing yourself in a white tee shirt, then there’s more work to do.  With optimism, achy mid-thirty old joints and a chubby kid’s smile, I confess, I do have a lot more work to do.  Hey every gym has an ice cream parlor next door, right?  Or does that situation mainly apply to home gyms?  Either way, how has your Summer been?
 
