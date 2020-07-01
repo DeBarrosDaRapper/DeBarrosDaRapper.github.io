@@ -27,6 +27,15 @@ Perhaps in November, we’ll get to clean house and refill the toilet paper reta
 
 [![scooter.jpg](https://i.postimg.cc/50fFJhH5/scooter.jpg)](https://postimg.cc/kVh5FhvD)
 
+## Back to nature
+
+Alright, let’s pull back into our senses, sit back down at our nearby picnic table and sip on lemonade…  It’s been a toasty Spring/Summer thus far, wouldn’t you agree?  Heck, near the middle of April 2020 I was released from my office job, and I was thinking to myself,” When offices open back up, who’s going to air condition my nether regions?” - my sweaty balls concurred.  Segue (no scooter) - why do girly faces always complain about sweaty balls?  I mean, the smell is akin to damp muskrats, nothing a warm soapy shower can’t fix.  I don’t see an issue, hmm, maybe I should shower more - a damp muskrat in fresh underoos, is still a damp muskrat :(
+
+[![muskrat.jpg](https://i.postimg.cc/xT1h8qrh/muskrat.jpg)](https://postimg.cc/V52DHfkW)
+
+
+
+
 
 
 
