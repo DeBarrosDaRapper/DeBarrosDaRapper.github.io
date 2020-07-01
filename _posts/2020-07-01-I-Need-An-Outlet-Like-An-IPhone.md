@@ -66,7 +66,7 @@ There’s a lot more format testing currently being done. If you like to play an
 
 Just think about it, we could play a mystery or puzzle game like [THE ROOM](https://www.fireproofgames.com/games/the-room) together all while growing wrinkles in our brains, or we could shiver and shriek across the internet with one or more viewers watching us playing a horror game which rivals a good horror movie.  Alternatively, we could play some online scrabble or simply do some voice-over work on a game which only has subtitles, and imbue the characters with life :) Hey I'm throwing this one out here, I just picked up those fishing games and those across the USA trucker games, just think we could present Afternoon Fishing On the Playground With "Awesome Human" and DeBarros, or "Strap in for a semi-truck road trip across Colorado and Idaho, mother-truckers!"
 
-These last 2-3 months, I’ve been laying the groundwork for a more meaningful, inclusive, online presence and have been thinking deep on, “How I can build a playful platform.  I’m experimenting and playing like we used to do no the playground as kids, I’ll be sure to keep you updated right cheerrr in this dern blog, arrr k :)
+These last 2-3 months, I’ve been laying the groundwork for a more meaningful, inclusive, online presence and have been thinking deep on, “How I can build a playful platform.  I’m experimenting and playing like we used to do on the playground as kids, I’ll be sure to keep you updated right cheerrr in this dern blog, arrr k :)
 
 Check the practice I did with Mario, earlier in the day (demo of OTP, only 50 seconds):
 
