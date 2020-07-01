@@ -1,7 +1,7 @@
 ---
 published: false
 ---
-## I really need an outlet... :)
+## I really need an outlet... [:]
 
 Definitions:
 
