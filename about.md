@@ -23,12 +23,6 @@ Join my BatPhone Service ⚙️: [http://fbuy.me/lsF1N](http://fbuy.me/lsF1N)
 
 🎶🎵🎙My Music:  [https://soundcloud.com/adrian-debarros](https://soundcloud.com/adrian-debarros)
 
-Support the blog! ❤️
-
-Merch is here! 👕 [AdrianDeBarros.redbubble.com](https://www.redbubble.com/people/AdrianDeBarros/shop)
-
-Buy me a coffee ☕ [https://www.buymeacoffee.com/DeBarros](https://www.buymeacoffee.com/DeBarros)
-
 Donations: [https://paypal.me/adriandebarros](https://paypal.me/adriandebarros)
 
 Share The Blog! 📡 [https://debarrosdarapper.github.io/](https://debarrosdarapper.github.io/)
